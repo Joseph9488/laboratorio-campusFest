@@ -1,1 +1,1 @@
-texto recicable
+texto reciclable
